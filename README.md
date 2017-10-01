@@ -1,0 +1,2 @@
+# coinhive.com
+coinhive.com
